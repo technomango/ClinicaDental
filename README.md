@@ -1,0 +1,1 @@
+Ayuda a las prácticas dentales pequeñas y grandes a optimizar cada aspecto de sus tareas administrativas y clínicas diarias, desde la agenda hasta el procesamiento de los tratamientos dentales, ahorrando aproximadamente 20 horas al mes en tareas administrativas.
